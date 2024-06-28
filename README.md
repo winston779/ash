@@ -1,6 +1,6 @@
 # ash机场官网地址
 
-最新地址：[ash.yt](https://air.ash.yt/#/register?code=ZmVNFptj)
+最新地址：[ash.yt](https://air.ash.yt/register?aff=ZmVNFptj)
 
 ## ash机场介绍
 
